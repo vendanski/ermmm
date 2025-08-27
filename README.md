@@ -7,9 +7,7 @@ $$\color{#a98f6a} she/her $$
 
 $$\color{#a98f6a} INFP-T $$
 
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎ ‎ ‎‎‎do not copy ponies / ask for inspo !
+$$\color{#a98f6a} do not copy ponies / ask for inspo !$$
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎![](https://files.catbox.moe/nqkf8j.gif)![](https://files.catbox.moe/oqumrm.png)![](https://files.catbox.moe/nj800j.gif)![](https://files.catbox.moe/4id5ie.gif)![](https://files.catbox.moe/mmsl6s.gif)![](https://files.catbox.moe/92alyq.gif)
 ![](https://files.catbox.moe/jhxdx6.png)
