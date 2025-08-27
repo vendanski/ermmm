@@ -1,1 +1,1 @@
-" original ***bandelero*** man ! "
+" **$\color{#285813}original$** **$$\color{#E9C417}bandelero$$** **$\color{#707070}man$** ! "
